@@ -1,6 +1,6 @@
 <p><em>Jingle Bell Heist</em>&nbsp;is a 2025 Netflix original movie. It blends romantic comedy with a holiday-themed crime caper. The story follows two strangers who team up to rob one of London&rsquo;s most famous department stores during Christmas. While planning the heist, they unexpectedly fall in love. The film is directed by&nbsp;<strong>Michael Fimognari</strong>&nbsp;and written by&nbsp;<strong>Abby McDonald</strong>. Produced by&nbsp;<strong>Matt Kaplan</strong>&nbsp;under ACE Entertainment, it promises a mix of humor, romance, and festive sparkle.</p>
 
-[![ebec3](https://www.nicepng.com/png/detail/213-2131375_watch-now-button-png-food-waste-only-sign.png)](https://t.co/xCAbTmAPZB)
+[![ebec3](https://www.nicepng.com/png/detail/213-2131375_watch-now-button-png-food-waste-only-sign.png)](https://t.co/O7c0ecZiK1)
 
 <h2 class="wp-block-heading">Plot</h2>
 <p>The film begins with&nbsp;<strong>Sophia Martin</strong>, a witty retail worker who feels stuck in her routine. She dreams of something bigger but struggles with financial troubles. On the other side is&nbsp;<strong>Nick</strong>, a repairman plagued by bad luck and debts. Both lead double lives as small-time thieves.</p>
